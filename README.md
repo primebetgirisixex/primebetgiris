@@ -1,2 +1,0 @@
-# primebetgiris
-PRİMEBET GİRİŞ 
